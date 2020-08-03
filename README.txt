@@ -1,1 +1,1 @@
-DevConnector
+Eclectic Soles
